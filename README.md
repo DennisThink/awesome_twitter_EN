@@ -9,3 +9,5 @@ pull request or an issue will be very grateful.
 |----|-----------------|
 |[kaifulee](https://x.com/kaifulee)|AI Expert, CEO of @01ai_yi and Chairman of 创新工场 @sinovationvc, former President of Google China, Author of AI 2041 and NYT Bestseller AI Superpowers|
 |[SergioRocks](https://x.com/SergioRocks)|CTO building tech products, startup teams & writing about it.Building https://jobscopilot.ai I work as a Fractional CTO for tech startups. DMs open|
+|[AndrewYNg](https://x.com/AndrewYNg)|Co-Founder of Coursera; Stanford CS adjunct faculty. Former head of Baidu AI Group/Google Brain. #ai #machinelearning, #deeplearning #MOOCs|
+|[AjaanMark](https://x.com/AjaanMark)|Sociologist, writer, educator、PhD (QUT, 2009) "The Phenomenology of Utopia"、He/him/เขา、Living on unceded Turrbal & Jagera lands|
