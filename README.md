@@ -11,3 +11,7 @@ pull request or an issue will be very grateful.
 |[SergioRocks](https://x.com/SergioRocks)|CTO building tech products, startup teams & writing about it.Building https://jobscopilot.ai I work as a Fractional CTO for tech startups. DMs open|
 |[AndrewYNg](https://x.com/AndrewYNg)|Co-Founder of Coursera; Stanford CS adjunct faculty. Former head of Baidu AI Group/Google Brain. #ai #machinelearning, #deeplearning #MOOCs|
 |[AjaanMark](https://x.com/AjaanMark)|Sociologist, writer, educator、PhD (QUT, 2009) "The Phenomenology of Utopia"、He/him/เขา、Living on unceded Turrbal & Jagera lands|
+|[May_Y_Chen](https://x.com/May_Y_Chen)|Writing about kindness - the quickest "hack" to happiness ,Lifelong Reader,Hospitality Professional|
+|[pranotihere](https://x.com/pranotihere)|Helping women with skill development and personal growth while using writing as a tool to gain clarity. Writer, journalist, certified research junkie|
+|||
+|||
