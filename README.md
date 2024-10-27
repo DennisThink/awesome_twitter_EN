@@ -13,5 +13,10 @@ pull request or an issue will be very grateful.
 |[AjaanMark](https://x.com/AjaanMark)|Sociologist, writer, educator、PhD (QUT, 2009) "The Phenomenology of Utopia"、He/him/เขา、Living on unceded Turrbal & Jagera lands|
 |[May_Y_Chen](https://x.com/May_Y_Chen)|Writing about kindness - the quickest "hack" to happiness ,Lifelong Reader,Hospitality Professional|
 |[pranotihere](https://x.com/pranotihere)|Helping women with skill development and personal growth while using writing as a tool to gain clarity. Writer, journalist, certified research junkie|
+|[NanouuSymeon](https://x.com/NanouuSymeon)|Game Team Lead、Content Creator、For Collaboration: nakibarbie1017@gmail.com|
+|[bindureddy](https://x.com/bindureddy)|CEO of the world’s first AI super assistant for enterprises and professionals. Working on open AGI! ex-GM, AWS and Google|
+|[unclebobmartin](https://x.com/unclebobmartin)|Software Craftsman|
+|||
+|||
 |||
 |||
